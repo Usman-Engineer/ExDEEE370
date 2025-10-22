@@ -1,2 +1,8 @@
 # ExDEEE370
 hey there i am using GitHub
+FUFU
+FUFU
+FUFU
+RIZVI
+YA HUSSAIN
+NAQVI
